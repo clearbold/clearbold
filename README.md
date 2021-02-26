@@ -1,1 +1,1 @@
-# clearbold
+# Clearbold, LLC
